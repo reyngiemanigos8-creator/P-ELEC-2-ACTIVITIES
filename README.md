@@ -1,2 +1,0 @@
-# P-ELEC-2-ACTIVITIES
-
